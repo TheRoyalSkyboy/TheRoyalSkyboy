@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheRoyalSkyboy
+- 👋 Hi, I’m @TheRoyalSkyboy, Also known as Liuma/Luma
 - 👀 I’m interested in Software Development and Media
 - 🌱 I’m currently learning to use Premiere Pro because of my activity on YouTube
 - 💞️ I’m looking to collaborate on nothing at the moment
